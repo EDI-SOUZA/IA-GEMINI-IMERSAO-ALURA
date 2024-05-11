@@ -23,5 +23,3 @@ Por favor, siga estas regras simples para manter um ambiente amigável e respeit
 
 Se tiver alguma dúvida ou precisar de assistência, não hesite em entrar em contato com um dos nossos moderadores. Aproveite o chat e divirta-se interagindo com a comunidade! 🚀
 ```
-
-Esse texto de apresentação pode ser ajustado conforme as necessidades do chat e a plataforma onde ele será utilizado.
