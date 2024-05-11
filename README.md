@@ -18,7 +18,7 @@ Por favor, siga estas regras simples para manter um ambiente amigável e respeit
 ## Informações Importantes
 
 - Horário de funcionamento: sempre ativo
-- Moderadores: [Meu Instagram](https://www.instagram.com/_edisouzadev_/)
+- Moderadores: [_edisouzadev_](https://www.instagram.com/_edisouzadev_/)
 
 
 Se tiver alguma dúvida ou precisar de assistência, não hesite em entrar em contato com um dos nossos moderadores. Aproveite o chat e divirta-se interagindo com a comunidade! 🚀
